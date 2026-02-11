@@ -1,16 +1,16 @@
-## Hi there 👋
+<div align="center">
 
-<!--
-**aangelcorpse/aangelcorpse** is a ✨ _special_ ✨ repository because its `README.md` (this file) appears on your GitHub profile.
+ 
+ 𝄞    ₊   ˚   ⊹
 
-Here are some ideas to get you started:
 
-- 🔭 I’m currently working on ...
-- 🌱 I’m currently learning ...
-- 👯 I’m looking to collaborate on ...
-- 🤔 I’m looking for help with ...
-- 💬 Ask me about ...
-- 📫 How to reach me: ...
-- 😄 Pronouns: ...
-- ⚡ Fun fact: ...
--->
+ 
+<img src="https://i.postimg.cc/FsxLY8hd/418-sin-titulo-20260211020012.png" width=400>
+
+
+ 
+ <img src="https://i.postimg.cc/Z5Lyy3c2/tumblr_271a15cdbb3f67113b6c94382906d854_9bce4591_75.gif"> ⠀　˳⠀⠀⠀**sato**⠀  __or__   *ciel*  ノ⠀⠀8teen .⠀  ࿙ 𝅄   
+ 
+ 𝑰𝐍𝐓𝐉⠀⠀⠀⠀          :¨ ·.· ¨:   
+⠀⠀ ⠀⠀ ⠀   ` . ✶      
+</div> 
